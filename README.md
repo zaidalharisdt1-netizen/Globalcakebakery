@@ -1,2 +1,0 @@
-# Globalcakebakery
-proyek inovasi digital
